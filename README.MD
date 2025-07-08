@@ -34,3 +34,5 @@ Me interesa especialmente el análisis del **comportamiento del consumidor**, la
 
 Si tu equipo necesita una mirada analítica con **sensibilidad humana**, ¡estoy abierta a conectar y colaborar!
 
+email: julibellis@gmail.com
+
